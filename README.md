@@ -1,0 +1,2 @@
+# verlinton-simangunsong
+percaya diri
